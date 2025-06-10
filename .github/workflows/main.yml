@@ -10,11 +10,14 @@ on:
 jobs:
   update-thought:
     runs-on: ubuntu-latest
-    permissions: # Add this block
-      contents: write # This grants the GITHUB_TOKEN permission to push changes
+    permissions: # This grants the GITHUB_TOKEN permission to push changes
+      contents: write
+      actions: read
     steps:
       - name: Checkout repository
         uses: actions/checkout@v4
+        with:
+          token: ${{ secrets.GITHUB_TOKEN }}
 
       - name: Set up Python
         uses: actions/setup-python@v5
@@ -28,14 +31,20 @@ jobs:
 
       - name: Configure Git for Contribution
         run: |
-          git config user.name "akshayparihardev"
-          git config user.email "akshayparihar9310@gmail.com"
+          git config --global user.name "Adhishree21"
+          git config --global user.email "adhishreeshiledar21@gmail.com"
 
       - name: Run Python script to update README
         run: python update_thought.py
 
       - name: Commit and push if changes exist
         run: |
-          git diff --exit-code || (git add README.md && git commit -m "✨ Daily Thought Update: $(date +'%Y-%m-%d')" && git push)
+          git add README.md
+          if git diff --staged --quiet; then
+            echo "No changes to commit"
+          else
+            git commit -m "✨ Daily Thought Update: $(date +'%Y-%m-%d')"
+            git push origin main
+          fi
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
