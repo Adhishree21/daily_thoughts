@@ -103,7 +103,7 @@ def update_readme():
     new_content += "**Have a Wonderful Day!** ☀️\n"
     # --- END OF MODIFIED CONTENT ---
 
-    with open("README.md", "w") as f:
+    with open("README.md", "w", encoding="utf-8") as f:
         f.write(new_content)
 
 if __name__ == "__main__":

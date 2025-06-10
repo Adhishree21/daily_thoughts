@@ -8,7 +8,7 @@ _Your daily spark of wisdom!_
 
 ### 💬 Today's Insight:
 ```
-> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
+> It is the function of science to discover the existence of a general reign of order in nature and to find the causes governing this order. ❤️ - Dmitri Mendeleev
 ```
 
 --- 
