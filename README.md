@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-13**
+## 🗓️ Date: **2025-06-14**
 
 ### 💬 Today's Insight:
 ```
-> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
+> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
 ```
 
 --- 
