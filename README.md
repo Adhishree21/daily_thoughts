@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-14**
+## 🗓️ Date: **2025-06-15**
 
 ### 💬 Today's Insight:
 ```
-> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
+> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
 ```
 
 --- 
