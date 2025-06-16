@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-15**
+## 🗓️ Date: **2025-06-16**
 
 ### 💬 Today's Insight:
 ```
-> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
+> Childhood means simplicity. Look at the world with the child's eye - it is very beautiful. ❤️ - Kailash Satyarthi
 ```
 
 --- 
