@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-16**
+## 🗓️ Date: **2025-06-17**
 
 ### 💬 Today's Insight:
 ```
-> Childhood means simplicity. Look at the world with the child's eye - it is very beautiful. ❤️ - Kailash Satyarthi
+> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
 ```
 
 --- 
