@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-17**
+## 🗓️ Date: **2025-06-18**
 
 ### 💬 Today's Insight:
 ```
-> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
+> To be, or not to be, that is the question. ❤️ - William Shakespeare
 ```
 
 --- 
