@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-19**
+## 🗓️ Date: **2025-06-20**
 
 ### 💬 Today's Insight:
 ```
-> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
