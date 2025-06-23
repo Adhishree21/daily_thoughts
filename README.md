@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-22**
+## 🗓️ Date: **2025-06-23**
 
 ### 💬 Today's Insight:
 ```
-> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
