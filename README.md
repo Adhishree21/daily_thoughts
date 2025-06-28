@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-27**
+## 🗓️ Date: **2025-06-28**
 
 ### 💬 Today's Insight:
 ```
-> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
