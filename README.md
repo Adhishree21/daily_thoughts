@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-28**
+## 🗓️ Date: **2025-06-29**
 
 ### 💬 Today's Insight:
 ```
-> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
