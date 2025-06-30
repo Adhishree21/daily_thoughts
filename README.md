@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-06-29**
+## 🗓️ Date: **2025-06-30**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
 ```
 
 --- 
