@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-03**
+## 🗓️ Date: **2025-07-04**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
 ```
 
 --- 
