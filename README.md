@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-06**
+## 🗓️ Date: **2025-07-07**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
