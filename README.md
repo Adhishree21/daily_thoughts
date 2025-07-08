@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-07**
+## 🗓️ Date: **2025-07-08**
 
 ### 💬 Today's Insight:
 ```
-> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
+> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
 ```
 
 --- 
