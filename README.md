@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-09**
+## 🗓️ Date: **2025-07-10**
 
 ### 💬 Today's Insight:
 ```
-> It is the function of science to discover the existence of a general reign of order in nature and to find the causes governing this order. ❤️ - Dmitri Mendeleev
+> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
 ```
 
 --- 
