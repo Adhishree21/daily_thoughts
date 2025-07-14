@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-13**
+## 🗓️ Date: **2025-07-14**
 
 ### 💬 Today's Insight:
 ```
-> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
