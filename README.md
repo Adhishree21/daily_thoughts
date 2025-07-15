@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-14**
+## 🗓️ Date: **2025-07-15**
 
 ### 💬 Today's Insight:
 ```
-> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
+> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
 ```
 
 --- 
