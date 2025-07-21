@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-20**
+## 🗓️ Date: **2025-07-21**
 
 ### 💬 Today's Insight:
 ```
-> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
