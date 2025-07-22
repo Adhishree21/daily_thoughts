@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-07-21**
+## 🗓️ Date: **2025-07-22**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
 ```
 
 --- 
