@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-01**
+## 🗓️ Date: **2025-08-02**
 
 ### 💬 Today's Insight:
 ```
-> Your most unhappy customers are your greatest source of learning. ❤️ - Bill Gates
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
