@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-04**
+## 🗓️ Date: **2025-08-05**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
