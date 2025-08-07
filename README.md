@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-06**
+## 🗓️ Date: **2025-08-07**
 
 ### 💬 Today's Insight:
 ```
-> Every aspect of the world today – even politics and international relations – is affected by chemistry. ❤️ - Linus Pauling
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
