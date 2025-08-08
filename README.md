@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-07**
+## 🗓️ Date: **2025-08-08**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> The more I study science, the more I believe in God. ❤️ - Max Planck
 ```
 
 --- 
