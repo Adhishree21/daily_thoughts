@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-08**
+## 🗓️ Date: **2025-08-09**
 
 ### 💬 Today's Insight:
 ```
-> The more I study science, the more I believe in God. ❤️ - Max Planck
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
