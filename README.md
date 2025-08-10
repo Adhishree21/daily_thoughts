@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-09**
+## 🗓️ Date: **2025-08-10**
 
 ### 💬 Today's Insight:
 ```
-> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
+> Self-belief and hard work will always earn you success. ❤️ - Virat Kohli
 ```
 
 --- 
