@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-10**
+## 🗓️ Date: **2025-08-11**
 
 ### 💬 Today's Insight:
 ```
-> Self-belief and hard work will always earn you success. ❤️ - Virat Kohli
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
