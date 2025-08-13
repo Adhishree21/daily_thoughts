@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-12**
+## 🗓️ Date: **2025-08-13**
 
 ### 💬 Today's Insight:
 ```
-> Self-belief and hard work will always earn you success. ❤️ - Virat Kohli
+> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
 ```
 
 --- 
