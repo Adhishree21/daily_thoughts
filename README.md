@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-13**
+## 🗓️ Date: **2025-08-14**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> It is never too late to be what you might have been. ❤️ - George Eliot
 ```
 
 --- 
