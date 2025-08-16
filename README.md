@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-15**
+## 🗓️ Date: **2025-08-16**
 
 ### 💬 Today's Insight:
 ```
-> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
+> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
 ```
 
 --- 
