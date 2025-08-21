@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-20**
+## 🗓️ Date: **2025-08-21**
 
 ### 💬 Today's Insight:
 ```
-> We are such stuff as dreams are made on, and our little life is rounded with a sleep. ❤️ - William Shakespeare
+> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
 ```
 
 --- 
