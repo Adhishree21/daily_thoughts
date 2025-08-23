@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-22**
+## 🗓️ Date: **2025-08-23**
 
 ### 💬 Today's Insight:
 ```
-> To be, or not to be, that is the question. ❤️ - William Shakespeare
+> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
 ```
 
 --- 
