@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-24**
+## 🗓️ Date: **2025-08-25**
 
 ### 💬 Today's Insight:
 ```
-> To be, or not to be, that is the question. ❤️ - William Shakespeare
+> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
 ```
 
 --- 
