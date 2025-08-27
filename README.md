@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-26**
+## 🗓️ Date: **2025-08-27**
 
 ### 💬 Today's Insight:
 ```
-> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
+> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
 ```
 
 --- 
