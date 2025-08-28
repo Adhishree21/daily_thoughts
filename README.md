@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-27**
+## 🗓️ Date: **2025-08-28**
 
 ### 💬 Today's Insight:
 ```
-> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
+> The more I study science, the more I believe in God. ❤️ - Max Planck
 ```
 
 --- 
