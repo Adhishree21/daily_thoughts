@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-08-28**
+## 🗓️ Date: **2025-08-29**
 
 ### 💬 Today's Insight:
 ```
-> The more I study science, the more I believe in God. ❤️ - Max Planck
+> Thousands of candles can be lighted from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared. ❤️ - Buddha
 ```
 
 --- 
