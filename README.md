@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-03**
+## 🗓️ Date: **2025-09-04**
 
 ### 💬 Today's Insight:
 ```
-> The mind is everything. What you think you become. ❤️ - Buddha
+> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
 ```
 
 --- 
