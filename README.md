@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-04**
+## 🗓️ Date: **2025-09-05**
 
 ### 💬 Today's Insight:
 ```
-> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
+> Imagination is more important than knowledge. ❤️ - Albert Einstein
 ```
 
 --- 
