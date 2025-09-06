@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-05**
+## 🗓️ Date: **2025-09-06**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> No legacy is so rich as honesty. ❤️ - William Shakespeare
 ```
 
 --- 
