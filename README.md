@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-06**
+## 🗓️ Date: **2025-09-07**
 
 ### 💬 Today's Insight:
 ```
-> No legacy is so rich as honesty. ❤️ - William Shakespeare
+> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
 ```
 
 --- 
