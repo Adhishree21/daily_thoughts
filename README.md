@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-10**
+## 🗓️ Date: **2025-09-11**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
 ```
 
 --- 
