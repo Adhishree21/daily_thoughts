@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-11**
+## 🗓️ Date: **2025-09-12**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
 ```
 
 --- 
