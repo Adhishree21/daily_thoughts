@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-12**
+## 🗓️ Date: **2025-09-13**
 
 ### 💬 Today's Insight:
 ```
-> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
+> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
 ```
 
 --- 
