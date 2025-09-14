@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-13**
+## 🗓️ Date: **2025-09-14**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> I have measured the heavens, now I shall measure the shadows of Earth. ❤️ - Johannes Kepler
 ```
 
 --- 
