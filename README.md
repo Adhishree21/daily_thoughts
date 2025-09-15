@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-14**
+## 🗓️ Date: **2025-09-15**
 
 ### 💬 Today's Insight:
 ```
-> I have measured the heavens, now I shall measure the shadows of Earth. ❤️ - Johannes Kepler
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
