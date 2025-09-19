@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-18**
+## 🗓️ Date: **2025-09-19**
 
 ### 💬 Today's Insight:
 ```
-> No legacy is so rich as honesty. ❤️ - William Shakespeare
+> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
 ```
 
 --- 
