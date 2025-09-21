@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-20**
+## 🗓️ Date: **2025-09-21**
 
 ### 💬 Today's Insight:
 ```
-> Science is the poetry of reality. ❤️ - Richard Dawkins
+> Success consists of going from failure to failure without loss of enthusiasm. ❤️ - Winston Churchill
 ```
 
 --- 
