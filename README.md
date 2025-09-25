@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-24**
+## 🗓️ Date: **2025-09-25**
 
 ### 💬 Today's Insight:
 ```
-> Childhood means simplicity. Look at the world with the child's eye - it is very beautiful. ❤️ - Kailash Satyarthi
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
