@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-25**
+## 🗓️ Date: **2025-09-26**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
 ```
 
 --- 
