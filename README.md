@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-09-27**
+## 🗓️ Date: **2025-09-28**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> Success consists of going from failure to failure without loss of enthusiasm. ❤️ - Winston Churchill
 ```
 
 --- 
