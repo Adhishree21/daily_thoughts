@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-01**
+## 🗓️ Date: **2025-10-02**
 
 ### 💬 Today's Insight:
 ```
-> It is the function of science to discover the existence of a general reign of order in nature and to find the causes governing this order. ❤️ - Dmitri Mendeleev
+> We are all connected; to each other, biologically. To the Earth, chemically. To the rest of the universe, atomically. ❤️ - Neil deGrasse Tyson
 ```
 
 --- 
