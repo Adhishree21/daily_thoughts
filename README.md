@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-03**
+## 🗓️ Date: **2025-10-04**
 
 ### 💬 Today's Insight:
 ```
-> Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. ❤️ - Louis Pasteur
+> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
 ```
 
 --- 
