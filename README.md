@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-04**
+## 🗓️ Date: **2025-10-05**
 
 ### 💬 Today's Insight:
 ```
-> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
+> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
 ```
 
 --- 
