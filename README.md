@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-05**
+## 🗓️ Date: **2025-10-06**
 
 ### 💬 Today's Insight:
 ```
-> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
