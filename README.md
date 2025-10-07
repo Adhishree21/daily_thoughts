@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-06**
+## 🗓️ Date: **2025-10-07**
 
 ### 💬 Today's Insight:
 ```
-> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
