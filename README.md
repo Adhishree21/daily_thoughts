@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-08**
+## 🗓️ Date: **2025-10-09**
 
 ### 💬 Today's Insight:
 ```
-> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
