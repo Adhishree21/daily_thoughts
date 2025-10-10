@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-09**
+## 🗓️ Date: **2025-10-10**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
 ```
 
 --- 
