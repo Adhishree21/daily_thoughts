@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-10**
+## 🗓️ Date: **2025-10-11**
 
 ### 💬 Today's Insight:
 ```
-> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
