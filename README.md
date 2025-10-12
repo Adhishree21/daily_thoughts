@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-11**
+## 🗓️ Date: **2025-10-12**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> Science and everyday life cannot and should not be separated. ❤️ - Rosalind Franklin
 ```
 
 --- 
