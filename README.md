@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-17**
+## 🗓️ Date: **2025-10-18**
 
 ### 💬 Today's Insight:
 ```
-> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
