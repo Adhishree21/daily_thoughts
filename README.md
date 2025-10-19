@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-18**
+## 🗓️ Date: **2025-10-19**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
 ```
 
 --- 
