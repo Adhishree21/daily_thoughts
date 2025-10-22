@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-21**
+## 🗓️ Date: **2025-10-22**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> We must trust to nothing but facts: These are presented to us by Nature, and cannot deceive. ❤️ - Antoine Lavoisier
 ```
 
 --- 
