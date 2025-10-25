@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-24**
+## 🗓️ Date: **2025-10-25**
 
 ### 💬 Today's Insight:
 ```
-> Success consists of going from failure to failure without loss of enthusiasm. ❤️ - Winston Churchill
+> It is never too late to be what you might have been. ❤️ - George Eliot
 ```
 
 --- 
