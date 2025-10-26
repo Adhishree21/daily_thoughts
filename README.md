@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-25**
+## 🗓️ Date: **2025-10-26**
 
 ### 💬 Today's Insight:
 ```
-> It is never too late to be what you might have been. ❤️ - George Eliot
+> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
 ```
 
 --- 
