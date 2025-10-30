@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-10-29**
+## 🗓️ Date: **2025-10-30**
 
 ### 💬 Today's Insight:
 ```
-> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
