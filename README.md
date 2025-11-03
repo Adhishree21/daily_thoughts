@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-02**
+## 🗓️ Date: **2025-11-03**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
 ```
 
 --- 
