@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-05**
+## 🗓️ Date: **2025-11-06**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
