@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-06**
+## 🗓️ Date: **2025-11-07**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
 ```
 
 --- 
