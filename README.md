@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-08**
+## 🗓️ Date: **2025-11-09**
 
 ### 💬 Today's Insight:
 ```
-> The more I study science, the more I believe in God. ❤️ - Max Planck
+> Believe you can and you're halfway there. ❤️ - Theodore Roosevelt
 ```
 
 --- 
