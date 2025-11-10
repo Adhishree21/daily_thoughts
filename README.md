@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-09**
+## 🗓️ Date: **2025-11-10**
 
 ### 💬 Today's Insight:
 ```
-> Believe you can and you're halfway there. ❤️ - Theodore Roosevelt
+> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
 ```
 
 --- 
