@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-11**
+## 🗓️ Date: **2025-11-12**
 
 ### 💬 Today's Insight:
 ```
-> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
+> We are such stuff as dreams are made on, and our little life is rounded with a sleep. ❤️ - William Shakespeare
 ```
 
 --- 
