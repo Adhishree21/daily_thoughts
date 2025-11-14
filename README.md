@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-13**
+## 🗓️ Date: **2025-11-14**
 
 ### 💬 Today's Insight:
 ```
-> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
+> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
 ```
 
 --- 
