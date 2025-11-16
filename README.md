@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-15**
+## 🗓️ Date: **2025-11-16**
 
 ### 💬 Today's Insight:
 ```
-> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
