@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-16**
+## 🗓️ Date: **2025-11-17**
 
 ### 💬 Today's Insight:
 ```
-> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
+> To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
