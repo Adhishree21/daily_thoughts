@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-18**
+## 🗓️ Date: **2025-11-19**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
