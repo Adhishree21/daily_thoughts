@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-19**
+## 🗓️ Date: **2025-11-20**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
 ```
 
 --- 
