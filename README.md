@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-20**
+## 🗓️ Date: **2025-11-21**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
 ```
 
 --- 
