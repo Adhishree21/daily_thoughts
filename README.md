@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-21**
+## 🗓️ Date: **2025-11-22**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> The only way to do great work is to love what you do. ❤️ - Steve Jobs
 ```
 
 --- 
