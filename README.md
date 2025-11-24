@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-23**
+## 🗓️ Date: **2025-11-24**
 
 ### 💬 Today's Insight:
 ```
-> It is never too late to be what you might have been. ❤️ - George Eliot
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
