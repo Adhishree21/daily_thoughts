@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-25**
+## 🗓️ Date: **2025-11-26**
 
 ### 💬 Today's Insight:
 ```
-> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
