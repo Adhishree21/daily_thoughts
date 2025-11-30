@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-11-29**
+## 🗓️ Date: **2025-11-30**
 
 ### 💬 Today's Insight:
 ```
-> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
+> We are all connected; to each other, biologically. To the Earth, chemically. To the rest of the universe, atomically. ❤️ - Neil deGrasse Tyson
 ```
 
 --- 
