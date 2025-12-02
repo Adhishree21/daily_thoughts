@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-01**
+## 🗓️ Date: **2025-12-02**
 
 ### 💬 Today's Insight:
 ```
-> No legacy is so rich as honesty. ❤️ - William Shakespeare
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
