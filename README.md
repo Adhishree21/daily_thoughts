@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-03**
+## 🗓️ Date: **2025-12-04**
 
 ### 💬 Today's Insight:
 ```
-> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
+> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
 ```
 
 --- 
