@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-05**
+## 🗓️ Date: **2025-12-06**
 
 ### 💬 Today's Insight:
 ```
-> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
+> We must trust to nothing but facts: These are presented to us by Nature, and cannot deceive. ❤️ - Antoine Lavoisier
 ```
 
 --- 
