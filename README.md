@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-07**
+## 🗓️ Date: **2025-12-08**
 
 ### 💬 Today's Insight:
 ```
-> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
+> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
 ```
 
 --- 
