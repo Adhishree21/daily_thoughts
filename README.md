@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-08**
+## 🗓️ Date: **2025-12-09**
 
 ### 💬 Today's Insight:
 ```
-> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
+> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
 ```
 
 --- 
