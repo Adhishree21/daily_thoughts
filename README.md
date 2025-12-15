@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-14**
+## 🗓️ Date: **2025-12-15**
 
 ### 💬 Today's Insight:
 ```
-> To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. ❤️ - Ralph Waldo Emerson
+> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
 ```
 
 --- 
