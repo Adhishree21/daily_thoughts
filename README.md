@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-18**
+## 🗓️ Date: **2025-12-19**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> We must trust to nothing but facts: These are presented to us by Nature, and cannot deceive. ❤️ - Antoine Lavoisier
 ```
 
 --- 
