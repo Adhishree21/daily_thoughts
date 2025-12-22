@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-21**
+## 🗓️ Date: **2025-12-22**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
 ```
 
 --- 
