@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-22**
+## 🗓️ Date: **2025-12-23**
 
 ### 💬 Today's Insight:
 ```
-> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
+> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
 ```
 
 --- 
