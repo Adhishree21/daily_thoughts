@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-23**
+## 🗓️ Date: **2025-12-24**
 
 ### 💬 Today's Insight:
 ```
-> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
+> Childhood means simplicity. Look at the world with the child's eye - it is very beautiful. ❤️ - Kailash Satyarthi
 ```
 
 --- 
