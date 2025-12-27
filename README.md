@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-26**
+## 🗓️ Date: **2025-12-27**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
