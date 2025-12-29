@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-28**
+## 🗓️ Date: **2025-12-29**
 
 ### 💬 Today's Insight:
 ```
-> To be, or not to be, that is the question. ❤️ - William Shakespeare
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
