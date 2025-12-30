@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-29**
+## 🗓️ Date: **2025-12-30**
 
 ### 💬 Today's Insight:
 ```
-> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
+> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
 ```
 
 --- 
