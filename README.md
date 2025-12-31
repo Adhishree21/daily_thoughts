@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-30**
+## 🗓️ Date: **2025-12-31**
 
 ### 💬 Today's Insight:
 ```
-> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
+> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
 ```
 
 --- 
