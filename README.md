@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2025-12-31**
+## 🗓️ Date: **2026-01-01**
 
 ### 💬 Today's Insight:
 ```
-> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
