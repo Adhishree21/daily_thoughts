@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-01**
+## 🗓️ Date: **2026-01-02**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
