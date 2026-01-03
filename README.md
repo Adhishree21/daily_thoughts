@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-02**
+## 🗓️ Date: **2026-01-03**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
 ```
 
 --- 
