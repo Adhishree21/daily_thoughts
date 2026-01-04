@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-03**
+## 🗓️ Date: **2026-01-04**
 
 ### 💬 Today's Insight:
 ```
-> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
