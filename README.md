@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-04**
+## 🗓️ Date: **2026-01-05**
 
 ### 💬 Today's Insight:
 ```
-> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
