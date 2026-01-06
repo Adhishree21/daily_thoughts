@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-05**
+## 🗓️ Date: **2026-01-06**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> We are all connected; to each other, biologically. To the Earth, chemically. To the rest of the universe, atomically. ❤️ - Neil deGrasse Tyson
 ```
 
 --- 
