@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-07**
+## 🗓️ Date: **2026-01-08**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> Imagination is more important than knowledge. ❤️ - Albert Einstein
 ```
 
 --- 
