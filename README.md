@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-08**
+## 🗓️ Date: **2026-01-09**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
 ```
 
 --- 
