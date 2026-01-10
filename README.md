@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-09**
+## 🗓️ Date: **2026-01-10**
 
 ### 💬 Today's Insight:
 ```
-> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
+> The more I study science, the more I believe in God. ❤️ - Max Planck
 ```
 
 --- 
