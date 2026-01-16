@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-15**
+## 🗓️ Date: **2026-01-16**
 
 ### 💬 Today's Insight:
 ```
-> The more I study science, the more I believe in God. ❤️ - Max Planck
+> Language is courage: the ability to conceive a thought, to speak it, and by doing so to make it true. ❤️ - Salman Rushdie
 ```
 
 --- 
