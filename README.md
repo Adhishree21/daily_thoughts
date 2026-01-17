@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-16**
+## 🗓️ Date: **2026-01-17**
 
 ### 💬 Today's Insight:
 ```
-> Language is courage: the ability to conceive a thought, to speak it, and by doing so to make it true. ❤️ - Salman Rushdie
+> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
 ```
 
 --- 
