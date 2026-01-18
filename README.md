@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-17**
+## 🗓️ Date: **2026-01-18**
 
 ### 💬 Today's Insight:
 ```
-> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
+> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
 ```
 
 --- 
