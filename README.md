@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-19**
+## 🗓️ Date: **2026-01-20**
 
 ### 💬 Today's Insight:
 ```
-> Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. ❤️ - Louis Pasteur
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
