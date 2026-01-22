@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-21**
+## 🗓️ Date: **2026-01-22**
 
 ### 💬 Today's Insight:
 ```
-> Every aspect of the world today – even politics and international relations – is affected by chemistry. ❤️ - Linus Pauling
+> Language is courage: the ability to conceive a thought, to speak it, and by doing so to make it true. ❤️ - Salman Rushdie
 ```
 
 --- 
