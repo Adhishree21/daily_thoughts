@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-22**
+## 🗓️ Date: **2026-01-23**
 
 ### 💬 Today's Insight:
 ```
-> Language is courage: the ability to conceive a thought, to speak it, and by doing so to make it true. ❤️ - Salman Rushdie
+> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
 ```
 
 --- 
