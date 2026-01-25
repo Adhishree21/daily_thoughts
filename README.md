@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-24**
+## 🗓️ Date: **2026-01-25**
 
 ### 💬 Today's Insight:
 ```
-> We must trust to nothing but facts: These are presented to us by Nature, and cannot deceive. ❤️ - Antoine Lavoisier
+> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
 ```
 
 --- 
