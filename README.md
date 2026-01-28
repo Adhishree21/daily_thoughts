@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-27**
+## 🗓️ Date: **2026-01-28**
 
 ### 💬 Today's Insight:
 ```
-> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
+> It is never too late to be what you might have been. ❤️ - George Eliot
 ```
 
 --- 
