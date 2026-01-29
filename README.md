@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-01-28**
+## 🗓️ Date: **2026-01-29**
 
 ### 💬 Today's Insight:
 ```
-> It is never too late to be what you might have been. ❤️ - George Eliot
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
