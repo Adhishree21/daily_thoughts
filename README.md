@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-02**
+## 🗓️ Date: **2026-02-03**
 
 ### 💬 Today's Insight:
 ```
-> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
+> Believe you can and you're halfway there. ❤️ - Theodore Roosevelt
 ```
 
 --- 
