@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-03**
+## 🗓️ Date: **2026-02-04**
 
 ### 💬 Today's Insight:
 ```
-> Believe you can and you're halfway there. ❤️ - Theodore Roosevelt
+> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
 ```
 
 --- 
