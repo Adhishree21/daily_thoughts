@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-05**
+## 🗓️ Date: **2026-02-06**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
 ```
 
 --- 
