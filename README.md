@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-10**
+## 🗓️ Date: **2026-02-11**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
