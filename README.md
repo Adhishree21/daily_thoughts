@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-13**
+## 🗓️ Date: **2026-02-14**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> The only way to do great work is to love what you do. ❤️ - Steve Jobs
 ```
 
 --- 
