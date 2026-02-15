@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-14**
+## 🗓️ Date: **2026-02-15**
 
 ### 💬 Today's Insight:
 ```
-> The only way to do great work is to love what you do. ❤️ - Steve Jobs
+> Childhood means simplicity. Look at the world with the child's eye - it is very beautiful. ❤️ - Kailash Satyarthi
 ```
 
 --- 
