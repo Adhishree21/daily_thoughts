@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-16**
+## 🗓️ Date: **2026-02-17**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
