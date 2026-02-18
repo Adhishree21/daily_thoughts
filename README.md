@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-17**
+## 🗓️ Date: **2026-02-18**
 
 ### 💬 Today's Insight:
 ```
-> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
