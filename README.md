@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-18**
+## 🗓️ Date: **2026-02-19**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
 ```
 
 --- 
