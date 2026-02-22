@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-21**
+## 🗓️ Date: **2026-02-22**
 
 ### 💬 Today's Insight:
 ```
-> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
