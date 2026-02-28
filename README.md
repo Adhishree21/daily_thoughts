@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-02-27**
+## 🗓️ Date: **2026-02-28**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
