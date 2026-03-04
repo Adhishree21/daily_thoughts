@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-03**
+## 🗓️ Date: **2026-03-04**
 
 ### 💬 Today's Insight:
 ```
-> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
+> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
 ```
 
 --- 
