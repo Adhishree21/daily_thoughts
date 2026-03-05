@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-04**
+## 🗓️ Date: **2026-03-05**
 
 ### 💬 Today's Insight:
 ```
-> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
