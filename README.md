@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-05**
+## 🗓️ Date: **2026-03-06**
 
 ### 💬 Today's Insight:
 ```
-> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
+> Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. ❤️ - Stephen Hawking
 ```
 
 --- 
