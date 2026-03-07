@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-06**
+## 🗓️ Date: **2026-03-07**
 
 ### 💬 Today's Insight:
 ```
-> Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. ❤️ - Stephen Hawking
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
