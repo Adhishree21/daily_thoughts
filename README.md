@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-11**
+## 🗓️ Date: **2026-03-12**
 
 ### 💬 Today's Insight:
 ```
-> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
+> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
 ```
 
 --- 
