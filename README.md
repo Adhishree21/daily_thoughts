@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-13**
+## 🗓️ Date: **2026-03-14**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
 ```
 
 --- 
