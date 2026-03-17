@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-16**
+## 🗓️ Date: **2026-03-17**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> I have measured the heavens, now I shall measure the shadows of Earth. ❤️ - Johannes Kepler
 ```
 
 --- 
