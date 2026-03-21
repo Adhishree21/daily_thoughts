@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-20**
+## 🗓️ Date: **2026-03-21**
 
 ### 💬 Today's Insight:
 ```
-> Your most unhappy customers are your greatest source of learning. ❤️ - Bill Gates
+> The only way to do great work is to love what you do. ❤️ - Steve Jobs
 ```
 
 --- 
