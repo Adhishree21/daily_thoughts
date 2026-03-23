@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-22**
+## 🗓️ Date: **2026-03-23**
 
 ### 💬 Today's Insight:
 ```
-> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
+> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
 ```
 
 --- 
