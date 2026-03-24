@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-23**
+## 🗓️ Date: **2026-03-24**
 
 ### 💬 Today's Insight:
 ```
-> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
+> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
 ```
 
 --- 
