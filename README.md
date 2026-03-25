@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-24**
+## 🗓️ Date: **2026-03-25**
 
 ### 💬 Today's Insight:
 ```
-> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
+> Do your little bit of good where you are; it's those little bits of good put together that overwhelm the world. ❤️ - Desmond Tutu
 ```
 
 --- 
