@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-29**
+## 🗓️ Date: **2026-03-30**
 
 ### 💬 Today's Insight:
 ```
-> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
+> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
 ```
 
 --- 
