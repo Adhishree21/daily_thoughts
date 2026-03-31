@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-30**
+## 🗓️ Date: **2026-03-31**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
 ```
 
 --- 
