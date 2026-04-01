@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-03-31**
+## 🗓️ Date: **2026-04-01**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
 ```
 
 --- 
