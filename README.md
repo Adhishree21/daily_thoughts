@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-02**
+## 🗓️ Date: **2026-04-03**
 
 ### 💬 Today's Insight:
 ```
-> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
+> It is never too late to be what you might have been. ❤️ - George Eliot
 ```
 
 --- 
