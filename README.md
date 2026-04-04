@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-03**
+## 🗓️ Date: **2026-04-04**
 
 ### 💬 Today's Insight:
 ```
-> It is never too late to be what you might have been. ❤️ - George Eliot
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
