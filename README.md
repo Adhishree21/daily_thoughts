@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-04**
+## 🗓️ Date: **2026-04-05**
 
 ### 💬 Today's Insight:
 ```
-> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
+> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
 ```
 
 --- 
