@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-05**
+## 🗓️ Date: **2026-04-06**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> No legacy is so rich as honesty. ❤️ - William Shakespeare
 ```
 
 --- 
