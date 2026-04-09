@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-08**
+## 🗓️ Date: **2026-04-09**
 
 ### 💬 Today's Insight:
 ```
-> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
