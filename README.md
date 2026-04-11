@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-10**
+## 🗓️ Date: **2026-04-11**
 
 ### 💬 Today's Insight:
 ```
-> The mind is everything. What you think you become. ❤️ - Buddha
+> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
 ```
 
 --- 
