@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-13**
+## 🗓️ Date: **2026-04-14**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> The only way to do great work is to love what you do. ❤️ - Steve Jobs
 ```
 
 --- 
