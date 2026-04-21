@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-20**
+## 🗓️ Date: **2026-04-21**
 
 ### 💬 Today's Insight:
 ```
-> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
+> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
 ```
 
 --- 
