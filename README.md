@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-21**
+## 🗓️ Date: **2026-04-22**
 
 ### 💬 Today's Insight:
 ```
-> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
+> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
 ```
 
 --- 
