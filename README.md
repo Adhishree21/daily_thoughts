@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-22**
+## 🗓️ Date: **2026-04-23**
 
 ### 💬 Today's Insight:
 ```
-> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
+> If you want to shine like a sun, first burn like a sun. ❤️ - A. P. J. Abdul Kalam
 ```
 
 --- 
