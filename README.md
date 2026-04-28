@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-27**
+## 🗓️ Date: **2026-04-28**
 
 ### 💬 Today's Insight:
 ```
-> Strive not to be a success, but rather to be of value. ❤️ - Albert Einstein
+> To be, or not to be, that is the question. ❤️ - William Shakespeare
 ```
 
 --- 
