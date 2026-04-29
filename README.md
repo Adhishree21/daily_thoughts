@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-28**
+## 🗓️ Date: **2026-04-29**
 
 ### 💬 Today's Insight:
 ```
-> To be, or not to be, that is the question. ❤️ - William Shakespeare
+> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
 ```
 
 --- 
