@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-04-30**
+## 🗓️ Date: **2026-05-01**
 
 ### 💬 Today's Insight:
 ```
-> Your most unhappy customers are your greatest source of learning. ❤️ - Bill Gates
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
