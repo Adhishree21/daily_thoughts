@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-01**
+## 🗓️ Date: **2026-05-02**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> Science is the poetry of reality. ❤️ - Richard Dawkins
 ```
 
 --- 
