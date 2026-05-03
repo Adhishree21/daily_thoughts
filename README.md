@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-02**
+## 🗓️ Date: **2026-05-03**
 
 ### 💬 Today's Insight:
 ```
-> Science is the poetry of reality. ❤️ - Richard Dawkins
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
