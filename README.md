@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-04**
+## 🗓️ Date: **2026-05-05**
 
 ### 💬 Today's Insight:
 ```
-> The mind is everything. What you think you become. ❤️ - Buddha
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
