@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-05**
+## 🗓️ Date: **2026-05-06**
 
 ### 💬 Today's Insight:
 ```
-> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
+> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
 ```
 
 --- 
