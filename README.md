@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-06**
+## 🗓️ Date: **2026-05-07**
 
 ### 💬 Today's Insight:
 ```
-> Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. ❤️ - Marie Curie
+> To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
