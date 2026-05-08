@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-07**
+## 🗓️ Date: **2026-05-08**
 
 ### 💬 Today's Insight:
 ```
-> To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. ❤️ - Ralph Waldo Emerson
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
