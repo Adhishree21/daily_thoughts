@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-08**
+## 🗓️ Date: **2026-05-09**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
 ```
 
 --- 
