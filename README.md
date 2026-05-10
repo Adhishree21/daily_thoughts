@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-09**
+## 🗓️ Date: **2026-05-10**
 
 ### 💬 Today's Insight:
 ```
-> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
+> I want people to remember me as a Good Person, Not as a Good Cricketer. ❤️ - M.S. Dhoni
 ```
 
 --- 
