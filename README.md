@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-11**
+## 🗓️ Date: **2026-05-12**
 
 ### 💬 Today's Insight:
 ```
-> Love all, trust a few, do wrong to none. ❤️ - William Shakespeare
+> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
 ```
 
 --- 
