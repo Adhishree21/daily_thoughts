@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-12**
+## 🗓️ Date: **2026-05-13**
 
 ### 💬 Today's Insight:
 ```
-> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
+> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
 ```
 
 --- 
