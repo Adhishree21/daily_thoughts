@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-13**
+## 🗓️ Date: **2026-05-14**
 
 ### 💬 Today's Insight:
 ```
-> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
