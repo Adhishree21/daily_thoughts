@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-14**
+## 🗓️ Date: **2026-05-15**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> Science is the poetry of reality. ❤️ - Richard Dawkins
 ```
 
 --- 
