@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-15**
+## 🗓️ Date: **2026-05-16**
 
 ### 💬 Today's Insight:
 ```
-> Science is the poetry of reality. ❤️ - Richard Dawkins
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
