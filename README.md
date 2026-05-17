@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-16**
+## 🗓️ Date: **2026-05-17**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> Do your little bit of good where you are; it's those little bits of good put together that overwhelm the world. ❤️ - Desmond Tutu
 ```
 
 --- 
