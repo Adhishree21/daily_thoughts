@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-17**
+## 🗓️ Date: **2026-05-18**
 
 ### 💬 Today's Insight:
 ```
-> Do your little bit of good where you are; it's those little bits of good put together that overwhelm the world. ❤️ - Desmond Tutu
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
