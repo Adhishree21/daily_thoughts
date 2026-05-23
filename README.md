@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-22**
+## 🗓️ Date: **2026-05-23**
 
 ### 💬 Today's Insight:
 ```
-> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
+> I have measured the heavens, now I shall measure the shadows of Earth. ❤️ - Johannes Kepler
 ```
 
 --- 
