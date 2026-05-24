@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-23**
+## 🗓️ Date: **2026-05-24**
 
 ### 💬 Today's Insight:
 ```
-> I have measured the heavens, now I shall measure the shadows of Earth. ❤️ - Johannes Kepler
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
