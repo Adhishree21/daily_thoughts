@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-24**
+## 🗓️ Date: **2026-05-25**
 
 ### 💬 Today's Insight:
 ```
-> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
+> Happiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. ❤️ - Ruskin Bond
 ```
 
 --- 
