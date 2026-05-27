@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-26**
+## 🗓️ Date: **2026-05-27**
 
 ### 💬 Today's Insight:
 ```
-> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
+> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
 ```
 
 --- 
