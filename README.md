@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-27**
+## 🗓️ Date: **2026-05-28**
 
 ### 💬 Today's Insight:
 ```
-> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
+> Science and everyday life cannot and should not be separated. ❤️ - Rosalind Franklin
 ```
 
 --- 
