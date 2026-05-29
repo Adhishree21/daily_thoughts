@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-28**
+## 🗓️ Date: **2026-05-29**
 
 ### 💬 Today's Insight:
 ```
-> Science and everyday life cannot and should not be separated. ❤️ - Rosalind Franklin
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
