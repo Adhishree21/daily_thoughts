@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-29**
+## 🗓️ Date: **2026-05-30**
 
 ### 💬 Today's Insight:
 ```
-> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
+> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
 ```
 
 --- 
