@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-05-30**
+## 🗓️ Date: **2026-05-31**
 
 ### 💬 Today's Insight:
 ```
-> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
+> Thousands of candles can be lighted from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared. ❤️ - Buddha
 ```
 
 --- 
