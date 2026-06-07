@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-06**
+## 🗓️ Date: **2026-06-07**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
 ```
 
 --- 
