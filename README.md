@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-07**
+## 🗓️ Date: **2026-06-08**
 
 ### 💬 Today's Insight:
 ```
-> Try to be a rainbow in someone's cloud. ❤️ - Maya Angelou
+> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
 ```
 
 --- 
