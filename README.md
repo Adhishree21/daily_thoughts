@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-09**
+## 🗓️ Date: **2026-06-10**
 
 ### 💬 Today's Insight:
 ```
-> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
+> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
 ```
 
 --- 
