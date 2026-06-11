@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-10**
+## 🗓️ Date: **2026-06-11**
 
 ### 💬 Today's Insight:
 ```
-> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
+> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
 ```
 
 --- 
