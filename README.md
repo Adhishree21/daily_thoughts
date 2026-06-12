@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-11**
+## 🗓️ Date: **2026-06-12**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> Science is the poetry of reality. ❤️ - Richard Dawkins
 ```
 
 --- 
