@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-12**
+## 🗓️ Date: **2026-06-13**
 
 ### 💬 Today's Insight:
 ```
-> Science is the poetry of reality. ❤️ - Richard Dawkins
+> Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. ❤️ - Stephen Hawking
 ```
 
 --- 
