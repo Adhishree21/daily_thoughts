@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-13**
+## 🗓️ Date: **2026-06-14**
 
 ### 💬 Today's Insight:
 ```
-> Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. ❤️ - Stephen Hawking
+> Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. ❤️ - Louis Pasteur
 ```
 
 --- 
