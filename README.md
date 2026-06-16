@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-15**
+## 🗓️ Date: **2026-06-16**
 
 ### 💬 Today's Insight:
 ```
-> The future belongs to those who believe in the beauty of their dreams. ❤️ - Eleanor Roosevelt
+> Imagination is more important than knowledge. ❤️ - Albert Einstein
 ```
 
 --- 
