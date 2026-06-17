@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-16**
+## 🗓️ Date: **2026-06-17**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
