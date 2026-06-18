@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-17**
+## 🗓️ Date: **2026-06-18**
 
 ### 💬 Today's Insight:
 ```
-> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
+> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
 ```
 
 --- 
