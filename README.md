@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-20**
+## 🗓️ Date: **2026-06-21**
 
 ### 💬 Today's Insight:
 ```
-> The unexamined life is not worth living. ❤️ - Socrates
+> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
 ```
 
 --- 
