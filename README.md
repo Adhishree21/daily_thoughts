@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-21**
+## 🗓️ Date: **2026-06-22**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> Science is the poetry of reality. ❤️ - Richard Dawkins
 ```
 
 --- 
