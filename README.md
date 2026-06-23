@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-22**
+## 🗓️ Date: **2026-06-23**
 
 ### 💬 Today's Insight:
 ```
-> Science is the poetry of reality. ❤️ - Richard Dawkins
+> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
 ```
 
 --- 
