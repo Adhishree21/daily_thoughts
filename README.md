@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-25**
+## 🗓️ Date: **2026-06-26**
 
 ### 💬 Today's Insight:
 ```
-> To be able to laugh and to be merciful are the only things that make man better than the beast. ❤️ - Ruskin Bond
+> If not now, then when? If not you, then who? ❤️ - Kailash Satyarthi
 ```
 
 --- 
