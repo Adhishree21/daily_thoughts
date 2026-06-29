@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-28**
+## 🗓️ Date: **2026-06-29**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
 ```
 
 --- 
