@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-06-29**
+## 🗓️ Date: **2026-06-30**
 
 ### 💬 Today's Insight:
 ```
-> Pressure is something you feel when you don't know what you're doing. ❤️ - Virat Kohli
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
