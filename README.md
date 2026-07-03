@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-02**
+## 🗓️ Date: **2026-07-03**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> We are all connected; to each other, biologically. To the Earth, chemically. To the rest of the universe, atomically. ❤️ - Neil deGrasse Tyson
 ```
 
 --- 
