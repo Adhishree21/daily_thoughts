@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-10**
+## 🗓️ Date: **2026-07-11**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
 ```
 
 --- 
