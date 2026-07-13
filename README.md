@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-12**
+## 🗓️ Date: **2026-07-13**
 
 ### 💬 Today's Insight:
 ```
-> No matter what people tell you, words and ideas can change the world. ❤️ - Robin Williams
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
