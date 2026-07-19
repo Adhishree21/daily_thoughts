@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-18**
+## 🗓️ Date: **2026-07-19**
 
 ### 💬 Today's Insight:
 ```
-> No legacy is so rich as honesty. ❤️ - William Shakespeare
+> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
 ```
 
 --- 
