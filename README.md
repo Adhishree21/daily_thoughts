@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-26**
+## 🗓️ Date: **2026-07-27**
 
 ### 💬 Today's Insight:
 ```
-> Someone is sitting in the shade today because someone planted a tree a long time ago. ❤️ - Warren Buffett
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
