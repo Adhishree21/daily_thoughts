@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-27**
+## 🗓️ Date: **2026-07-28**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
 ```
 
 --- 
