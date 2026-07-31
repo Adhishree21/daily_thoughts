@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-30**
+## 🗓️ Date: **2026-07-31**
 
 ### 💬 Today's Insight:
 ```
-> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
