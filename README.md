@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-07-31**
+## 🗓️ Date: **2026-08-01**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
 ```
 
 --- 
