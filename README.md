@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-05**
+## 🗓️ Date: **2026-08-06**
 
 ### 💬 Today's Insight:
 ```
-> The more I study science, the more I believe in God. ❤️ - Max Planck
+> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
 ```
 
 --- 
