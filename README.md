@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-11**
+## 🗓️ Date: **2026-08-12**
 
 ### 💬 Today's Insight:
 ```
-> Science and everyday life cannot and should not be separated. ❤️ - Rosalind Franklin
+> The only way to do great work is to love what you do. ❤️ - Steve Jobs
 ```
 
 --- 
