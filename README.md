@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-12**
+## 🗓️ Date: **2026-08-13**
 
 ### 💬 Today's Insight:
 ```
-> The only way to do great work is to love what you do. ❤️ - Steve Jobs
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
