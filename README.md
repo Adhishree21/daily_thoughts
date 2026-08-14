@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-13**
+## 🗓️ Date: **2026-08-14**
 
 ### 💬 Today's Insight:
 ```
-> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
+> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
 ```
 
 --- 
