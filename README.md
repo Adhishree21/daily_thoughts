@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-15**
+## 🗓️ Date: **2026-08-16**
 
 ### 💬 Today's Insight:
 ```
-> Ask not what your country can do for you – ask what you can do for your country. ❤️ - John F. Kennedy
+> Success consists of going from failure to failure without loss of enthusiasm. ❤️ - Winston Churchill
 ```
 
 --- 
