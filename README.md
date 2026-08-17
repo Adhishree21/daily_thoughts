@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-16**
+## 🗓️ Date: **2026-08-17**
 
 ### 💬 Today's Insight:
 ```
-> Success consists of going from failure to failure without loss of enthusiasm. ❤️ - Winston Churchill
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
