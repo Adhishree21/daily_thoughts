@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-25**
+## 🗓️ Date: **2026-08-26**
 
 ### 💬 Today's Insight:
 ```
-> Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. ❤️ - J.K. Rowling
+> Believe you can and you're halfway there. ❤️ - Theodore Roosevelt
 ```
 
 --- 
