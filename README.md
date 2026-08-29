@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-28**
+## 🗓️ Date: **2026-08-29**
 
 ### 💬 Today's Insight:
 ```
-> In the fields of observation chance favors only the prepared mind. ❤️ - Louis Pasteur
+> Have no fear of perfection; you'll never reach it. ❤️ - Marie Curie
 ```
 
 --- 
