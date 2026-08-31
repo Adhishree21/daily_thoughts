@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-30**
+## 🗓️ Date: **2026-08-31**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
