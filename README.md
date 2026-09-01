@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-08-31**
+## 🗓️ Date: **2026-09-01**
 
 ### 💬 Today's Insight:
 ```
-> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
+> No legacy is so rich as honesty. ❤️ - William Shakespeare
 ```
 
 --- 
