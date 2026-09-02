@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-01**
+## 🗓️ Date: **2026-09-02**
 
 ### 💬 Today's Insight:
 ```
-> No legacy is so rich as honesty. ❤️ - William Shakespeare
+> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
 ```
 
 --- 
