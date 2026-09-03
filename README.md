@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-02**
+## 🗓️ Date: **2026-09-03**
 
 ### 💬 Today's Insight:
 ```
-> It is our choices... that show what we truly are, far more than our abilities. ❤️ - J.K. Rowling
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
