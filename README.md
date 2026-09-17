@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-16**
+## 🗓️ Date: **2026-09-17**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
 ```
 
 --- 
