@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-17**
+## 🗓️ Date: **2026-09-18**
 
 ### 💬 Today's Insight:
 ```
-> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
+> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
 ```
 
 --- 
