@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-18**
+## 🗓️ Date: **2026-09-19**
 
 ### 💬 Today's Insight:
 ```
-> Always do right; this will gratify some people and astonish the rest. ❤️ - Mark Twain
+> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
 ```
 
 --- 
