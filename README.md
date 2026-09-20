@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-19**
+## 🗓️ Date: **2026-09-20**
 
 ### 💬 Today's Insight:
 ```
-> We are what our thoughts have made us; so take care about what you think. ❤️ - Swami Vivekananda
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
