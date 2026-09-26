@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-09-25**
+## 🗓️ Date: **2026-09-26**
 
 ### 💬 Today's Insight:
 ```
-> Cowards die many times before their deaths; the valiant never taste of death but once. ❤️ - William Shakespeare
+> All science is either physics or stamp collecting. ❤️ - Ernest Rutherford
 ```
 
 --- 
