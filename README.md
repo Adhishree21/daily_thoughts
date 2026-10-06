@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-05**
+## 🗓️ Date: **2026-10-06**
 
 ### 💬 Today's Insight:
 ```
-> Imagination is more important than knowledge. ❤️ - Albert Einstein
+> The way to get started is to quit talking and begin doing. ❤️ - Walt Disney
 ```
 
 --- 
