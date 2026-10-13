@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-12**
+## 🗓️ Date: **2026-10-13**
 
 ### 💬 Today's Insight:
 ```
-> Your most unhappy customers are your greatest source of learning. ❤️ - Bill Gates
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
