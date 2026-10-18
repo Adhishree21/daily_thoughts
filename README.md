@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-17**
+## 🗓️ Date: **2026-10-18**
 
 ### 💬 Today's Insight:
 ```
-> We are such stuff as dreams are made on, and our little life is rounded with a sleep. ❤️ - William Shakespeare
+> Imagination is more important than knowledge. ❤️ - Albert Einstein
 ```
 
 --- 
