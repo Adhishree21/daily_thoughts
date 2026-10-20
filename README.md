@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-19**
+## 🗓️ Date: **2026-10-20**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> You miss 100 percent of the shots you never take. ❤️ - Wayne Gretzky
 ```
 
 --- 
