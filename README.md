@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-24**
+## 🗓️ Date: **2026-10-25**
 
 ### 💬 Today's Insight:
 ```
-> If you tell the truth you don't have to remember anything. ❤️ - Mark Twain
+> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
 ```
 
 --- 
