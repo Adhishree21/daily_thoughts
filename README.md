@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-10-25**
+## 🗓️ Date: **2026-10-26**
 
 ### 💬 Today's Insight:
 ```
-> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
+> What lies behind us and what lies before us are tiny matters compared to what lies within us. ❤️ - Ralph Waldo Emerson
 ```
 
 --- 
