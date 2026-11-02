@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-01**
+## 🗓️ Date: **2026-11-02**
 
 ### 💬 Today's Insight:
 ```
-> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
+> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
 ```
 
 --- 
