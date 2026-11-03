@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-02**
+## 🗓️ Date: **2026-11-03**
 
 ### 💬 Today's Insight:
 ```
-> Genius is one percent inspiration and ninety-nine percent perspiration. ❤️ - Thomas Edison
+> The process is more important than the results. And if you take care of the process, you will get the results. ❤️ - M.S. Dhoni
 ```
 
 --- 
