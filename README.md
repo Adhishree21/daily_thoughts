@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-07**
+## 🗓️ Date: **2026-11-08**
 
 ### 💬 Today's Insight:
 ```
-> Don't judge each day by the harvest you reap but by the seeds that you plant. ❤️ - Robert Louis Stevenson
+> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
 ```
 
 --- 
