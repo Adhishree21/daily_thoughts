@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-08**
+## 🗓️ Date: **2026-11-09**
 
 ### 💬 Today's Insight:
 ```
-> Your time is limited, don't waste it living someone else's life. ❤️ - Steve Jobs
+> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
 ```
 
 --- 
