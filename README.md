@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-09**
+## 🗓️ Date: **2026-11-10**
 
 ### 💬 Today's Insight:
 ```
-> The only thing we have to fear is fear itself. ❤️ - Franklin D. Roosevelt
+> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
 ```
 
 --- 
