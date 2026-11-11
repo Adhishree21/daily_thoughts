@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-10**
+## 🗓️ Date: **2026-11-11**
 
 ### 💬 Today's Insight:
 ```
-> Arise, awake, and stop not till the goal is reached. ❤️ - Swami Vivekananda
+> Imagination is more important than knowledge. ❤️ - Albert Einstein
 ```
 
 --- 
