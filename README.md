@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-15**
+## 🗓️ Date: **2026-11-16**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
