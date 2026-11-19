@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-18**
+## 🗓️ Date: **2026-11-19**
 
 ### 💬 Today's Insight:
 ```
-> We are such stuff as dreams are made on, and our little life is rounded with a sleep. ❤️ - William Shakespeare
+> Atoms cannot be seen, but we infer their existence and properties from the ways in which substances behave. ❤️ - John Dalton
 ```
 
 --- 
