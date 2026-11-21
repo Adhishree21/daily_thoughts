@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-20**
+## 🗓️ Date: **2026-11-21**
 
 ### 💬 Today's Insight:
 ```
-> Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality. ❤️ - Linus Pauling
+> We are all connected; to each other, biologically. To the Earth, chemically. To the rest of the universe, atomically. ❤️ - Neil deGrasse Tyson
 ```
 
 --- 
