@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-24**
+## 🗓️ Date: **2026-11-25**
 
 ### 💬 Today's Insight:
 ```
-> Every aspect of the world today – even politics and international relations – is affected by chemistry. ❤️ - Linus Pauling
+> What is freedom of expression? Without the freedom to offend, it ceases to exist. ❤️ - Salman Rushdie
 ```
 
 --- 
