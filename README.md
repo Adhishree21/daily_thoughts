@@ -4,11 +4,11 @@
 
 _Your daily spark of wisdom!_
 
-## 🗓️ Date: **2026-11-27**
+## 🗓️ Date: **2026-11-28**
 
 ### 💬 Today's Insight:
 ```
-> Do your little bit of good where you are; it's those little bits of good put together that overwhelm the world. ❤️ - Desmond Tutu
+> Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. ❤️ - Steve Jobs
 ```
 
 --- 
